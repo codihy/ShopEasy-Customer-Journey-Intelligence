@@ -212,7 +212,7 @@ This project was developed as part of a portfolio demonstrating end-to-end data 
 
 **LinkedIn:** [Profile](linkedin.com/in/vipin-singh-negi-5a4ba3267)
 
-**Email:** praveenm2124@gmail.com
+**Email:** negivip2001@gmail.com
 
 ---
 
